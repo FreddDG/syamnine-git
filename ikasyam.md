@@ -1,0 +1,1 @@
+ika syam . .nakuha nanaku basta dli lang ko labdon makuha naman.,
